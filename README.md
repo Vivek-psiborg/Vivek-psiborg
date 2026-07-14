@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Vivek-psiborg
-- 👀 I’m interested in Peace
+- 👀 I’m interested in WFH
 - 🌱 I’m currently learning Survival skill
-- 💞️ I’m looking for chole bhature 
+- 💞️ I’m looking for Peace 
 - 📫 How to reach me Slack Me!
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Nothing is possible
