@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Vivek-psiborg
 - 👀 I’m interested in Peace
 - 🌱 I’m currently learning Survival skill
-- 💞️ I’m looking to collaborate on Internal pointer variable 
+- 💞️ I’m looking for chole bhature 
 - 📫 How to reach me Slack Me!
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Nothing is possible
